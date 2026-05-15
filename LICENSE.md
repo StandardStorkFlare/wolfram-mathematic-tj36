@@ -1,4 +1,4 @@
-# 
+# Enhance Wolfram Mathematica for PC | Wolfram Mathematica for Windows with Wolfram Mathematica for PC | Wolfram Mathematica for Windows automatic Addon: parallel-computing &
 
 
 
